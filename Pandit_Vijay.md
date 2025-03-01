@@ -12,14 +12,19 @@
 * [Refer Here](https://www.youtube.com/shorts/uPekcy1d3Pg)
 
 
-### Pandit Vijay vehicle accident to avoid 
+### vehicle accident to avoid 
 * [Refer Here](https://www.youtube.com/shorts/domTed4HkiQ)
 
-### Pandit Vijay Which nakshatra should go to which temple 
+### Which nakshatra should go to which temple 
 * [Refer Here](https://www.youtube.com/watch?v=2tz_EiDalKk)
 
-### Pandit Vijay about lady's finger/vendaka remedies for kodal punnu/wound and memory power 
+###  about lady's finger/vendaka remedies for kodal punnu/wound and memory power 
 * [Refer Here](https://www.youtube.com/watch?v=4IrX3oucZxo)
 
+### memory power with good or make it high 
+* [Refer Here](https://www.youtube.com/watch?v=LgV2c0bg7CA)
+
+
 ### Pandit Vijay 
-* [Refer Here](https://www.youtube.com/watch?v=AAjh5J2eczw)
+* [Refer Here](https://www.youtube.com/watch?v=AAjh5J2eczw) 
+
