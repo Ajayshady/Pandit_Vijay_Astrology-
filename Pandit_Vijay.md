@@ -28,3 +28,5 @@
 ### Pandit Vijay 
 * [Refer Here](https://www.youtube.com/watch?v=AAjh5J2eczw) 
 
+### about angry/jealous  and marriage problem to get rid off
+* [Refer Here](https://www.youtube.com/watch?v=CqUhJZqbfx8) 
