@@ -29,4 +29,7 @@
 * [Refer Here](https://www.youtube.com/watch?v=AAjh5J2eczw) 
 
 ### about angry/jealous  and marriage problem to get rid off
-* [Refer Here](https://www.youtube.com/watch?v=CqUhJZqbfx8) 
+* [Refer Here](https://www.youtube.com/watch?v=CqUhJZqbfx8)
+
+### About our rasi related to our body parts explained which is rasi to which body parts belongs to.
+* [Refer Here](https://www.youtube.com/watch?v=sQDZbrFUW3I) 
