@@ -52,4 +52,12 @@
 * sweet chessnut medicine to talk in boldness 
 * mimulus flower medicine for avoiding fear and talk in strong 
 * [Refer Here](https://www.youtube.com/watch?v=J027wMzgljU)
+* [Refer Here](https://www.youtube.com/watch?v=BqIf9dV1mCo)
+
+### little important spoke about many things below points
+* which rasi should go which temple
+* what is the benefit of parihara
+* about oma
+* if in trouble of credit which temple should go
+* [Refer Here](https://www.youtube.com/watch?v=swVl-lVwOD0)
 
