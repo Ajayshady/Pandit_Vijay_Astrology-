@@ -45,6 +45,9 @@
 * Very important from lagnam to 12 house what all is there from 1 to 12 
 * [Refer Here](https://www.youtube.com/watch?v=Dd7SPQAqmD4) 
 * [Refer Here](https://youtu.be/GoZHaMJgJb8?si=I0dIJz0znYHQb9km)
+* [Refer Here](https://www.youtube.com/watch?v=3PALbXrukoQ)
+* [Refer Here](https://www.youtube.com/shorts/_4_QBPh49-4)
+
 
 
 ### Astrology greatest person names are there
