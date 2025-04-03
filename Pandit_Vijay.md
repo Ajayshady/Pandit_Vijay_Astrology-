@@ -29,7 +29,6 @@
 * [Refer Here](https://www.youtube.com/watch?v=AAjh5J2eczw) 
 
 ### about angry/jealous  and marriage problem to get rid off
-<<<<<<< HEAD
 * [Refer Here](https://www.youtube.com/watch?v=CqUhJZqbfx8) 
 
 ### uthara sada or utharadam nakshatram which is kubera and will activate 
@@ -54,9 +53,3 @@
 * mimulus flower medicine for avoiding fear and talk in strong 
 * [Refer Here](https://www.youtube.com/watch?v=J027wMzgljU)
 
-=======
-* [Refer Here](https://www.youtube.com/watch?v=CqUhJZqbfx8)
-
-### About our rasi related to our body parts explained which is rasi to which body parts belongs to.
-* [Refer Here](https://www.youtube.com/watch?v=sQDZbrFUW3I) 
->>>>>>> c804ea20b14abdfc64ac20724179dd31f86ff89d
