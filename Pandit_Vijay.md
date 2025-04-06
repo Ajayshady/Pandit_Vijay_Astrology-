@@ -64,3 +64,6 @@
 * if in trouble of credit which temple should go
 * [Refer Here](https://www.youtube.com/watch?v=swVl-lVwOD0)
 
+
+### spoke about padagadibadi means what and his guru's names he told 
+* [Refer Here](https://www.youtube.com/watch?v=TNYClgnpAt0)
