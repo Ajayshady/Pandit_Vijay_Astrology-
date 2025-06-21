@@ -67,3 +67,9 @@
 
 ### spoke about padagadibadi means what and his guru's names he told 
 * [Refer Here](https://www.youtube.com/watch?v=TNYClgnpAt0)
+
+### For IT People and If we are going to out for some important/good work
+* IT People: they have to improve in IT means 1 kalum and 1 nelum or 1 kalum and kojam nelum should tie in the cloth and keep in the pocket, they will get success, for kalu sukha pahre it will be good. 
+* If people are going out for some important/good work then they have to cut RED and White Ribbon then they have to go for that work then it will get success.
+* [Refer Here](https://www.youtube.com/watch?v=rsfVAIan_po) 
+
