@@ -71,5 +71,10 @@
 ### For IT People and If we are going to out for some important/good work
 * IT People: they have to improve in IT means 1 kalum and 1 nelum or 1 kalum and kojam nelum should tie in the cloth and keep in the pocket, they will get success, for kalu sukha pahre it will be good. 
 * If people are going out for some important/good work then they have to cut RED and White Ribbon then they have to go for that work then it will get success.
+* astam or swathi nakshatram for IT people if they search some job or apply some job it will be 100% success
 * [Refer Here](https://www.youtube.com/watch?v=rsfVAIan_po) 
 
+
+### Uthara nakshathram kubere from pandhale from kerala
+* to activate kubera for uthara nakshathram we needs to come to kerala pandhale 
+* [Refer Here](https://www.youtube.com/shorts/uUIrvzM3t0k)
