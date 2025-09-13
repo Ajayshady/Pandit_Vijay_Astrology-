@@ -92,8 +92,22 @@
 * if a person has lots of problem means then he have to visit thiruvanamalai and stand next to vayu lingam or yuma lingam and spread the hands and shout and tell the problem by seeing the mountain problems will solve it within in two days problem will solve.
 
 
+### About Marriage/mana valkeyal problem temple kumrankundru 
+* should go for 48 weeks or days on tuesday or saturday good will happen 
+* [Refer Here](https://www.youtube.com/watch?v=49FJuMhjTJY)
+
+### Liver problem and kannu drishti 
+* [Refer Here](https://www.youtube.com/watch?v=ARuLEarZrlo)
+
+### Imediate money should get or how to imporve financial status
+* adidi yagam by doing immediate money will come
+* [Refer Here](https://www.youtube.com/watch?v=yqrVDb2sKAM)
+
+
+
 Tithi Videos
 ------------
+* These thithi's will applicable who ever born in this tithi and also the current tithi's will also applicable. should not do any good things too. here one important is which graham will become shunyam that graham related works will affect it. 
 
 ### Panchami(5) Tithi 
 * [Refer Here](https://www.youtube.com/watch?v=MKv5sSn7Rqc)
@@ -108,5 +122,29 @@ Tithi Videos
 * valibadu next to puliyar peti and kundram kodi, there is padhara kudi one village there sandhoshi amman temple can do pooja, otherwise next to kumbhakonam thiladharbane kodi village there is adhivianyagar one temple can do pooja and put one vastram, otherwise should give achi velam dhanam or yerumbhu putruku dhanam or vianyaka perumalku achivelam padathil vaikinam, saturday and friday do it only for vinayaka perumal and tel om sumukhaya swaga for 101, but skipping is good.
 
 
+### Pradamai(1) Tithi
+* [Refer Here](https://www.youtube.com/watch?v=avWqr5w8M4g)
+* if we born in this tithi means makram(shani) and tula(venus/shukara) will come shunyam, so saturday and friday will affect them badly, should not do any good thing on this tithi on this day, should not do good things on this these days,
+* pariharam is if we want to do there is no option then achi velam dhanam should give or should put achivelam in sea and then do or should melt salt and then put this achi valeam in that and melt it 
+
+### Tritiya(3) Tithi
+* [Refer Here](https://www.youtube.com/watch?v=bHlmm71o8Nk)
+* if we bron on this tithi means makram(shani) and simha(surya) will become shunyam, saturday and sunday will become bad day so should not do any good things on this days.
+* pariharam is should see the face and break the glass face mirror, if it is temple then tanjaor next to surekote ulur next bhakara eshwaran valibadu. 
 
 
+### Dvitiya(2) Tithi
+* [Refer Here](https://www.youtube.com/watch?v=XUnIEPb0yh8)
+* if we born on this tithi means dhansu(jupitor) and (meenam)(jupitor) will become shunyam, and thursday will become bad and should not do good things. should not take guru and brahamana curse or shabham, others days ok doing things but especially wednesday will be good day, 
+* should do guru namaskaram, or any madam should take blessing, or manjal kelangu braking is good, sundal dhanam should give, 
+
+
+### Shashti(6) Tithi
+* [Refer Here](https://www.youtube.com/watch?v=c_cCy6kxh0s)
+* if we born on this tithi means Mesha(mars/seva) and simha(surya) will become shunyam, that is tuesday and suandy will become bad days, should not do any good things on these days, 
+* valibadu is swamy malai murgan should pray or bend coconut tree should pour the water 
+
+### Saptami(7) Tithi
+* [Refer Here](https://www.youtube.com/watch?v=-Hy-UC9jDVk)
+* if we born on this tithi means dhansu(jupitor) and kadagam(chandra) will become shunyam, this thursday and monday will become bad days should not do any work on that day, 
+* valibadu chandra shekar eshwar or sapta rishwar lalgudi town or akshte should prepare and give for 4 people or 9 people or 7 people should dhanam if no one taken means then in temple keep near leg of sapta kani god. 
