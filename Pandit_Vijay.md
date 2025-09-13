@@ -78,3 +78,35 @@
 ### Uthara nakshathram kubere from pandhale from kerala
 * to activate kubera for uthara nakshathram we needs to come to kerala pandhale 
 * [Refer Here](https://www.youtube.com/shorts/uUIrvzM3t0k)
+
+
+### This video is about kodi mudi magadeshwar temple and devipatnam temple and thiruvanamalai temple and thirunagar kutralam for all the problem solution any person can do it
+* [Refer Here](https://www.youtube.com/watch?v=pm_ULtjrjHQ)
+
+* in this kodi mudi temple there brahama vishnu shivan on sunday if a girl then girl mad doll if boy then boy mad doll should round to their head and leave in water and have bath in kaveri then do darshanam for magedeshwarar that is brahama, vishnu and shivan do the darshanam and watch palihare pooja and stay that night on sunday, and on monday morning same procedure doll rounding head and have bath in kaveri, and punarjanmam pooje should do, this if follow every month then slowly all the problem will solve it. any person can go there is no restrictions, based on their rashi or lagnam or nakshathram, if person lagnam as problem then it is very good if he/she follow this. or in adi purvam mahalakshmi omam doing is also good their doing in that temple only. 
+
+* childrens who has problem in education then they have to go at kutralanagar and stay two days and sunday night should see palihare pooje and monady morning kulal vai muli amman if we see then audi padi kalvi will come and then next yelanji murgan kovil should see agathiyar then it will solve problem the we will get nainam. 
+
+* if we go to devi patnam and 27 times mugi have bath in sea and round navagraham and have bath in sea means dosham will get rid any one can go. big change over will happen 
+
+* if a person has lots of problem means then he have to visit thiruvanamalai and stand next to vayu lingam or yuma lingam and spread the hands and shout and tell the problem by seeing the mountain problems will solve it within in two days problem will solve.
+
+
+Tithi Videos
+------------
+
+### Panchami(5) Tithi 
+* [Refer Here](https://www.youtube.com/watch?v=MKv5sSn7Rqc)
+* if we born on panchami thithi means It will affect mithanum(mercury/budhan) and kani(mercury/budhan) and should not be born on wednesday
+* for them wednesday is not good day and should not do any work on that day incase we have to do on that day any good work means we have to take 40 rs note book unruled and tare and then do ro go but 99% not to do, 
+* what is valibadu means panche nadishwarur in thiruvaiyar should not do on wednesday valibadu other day we can do, should not keep account in punjab national bank, karur vysya bank, 
+
+### Chaturthi(4) Tithi 
+* [Refer Here](https://www.youtube.com/watch?v=O6lrYnPpApk)
+* if we born on chaturthi tithi means it will affect Kumbha(saturn/shani) and Vrishabha(venus/shukra), will become bad/shunyam, should be careful in head
+* for them  saturday and friday should not born or should not do any good work, 
+* valibadu next to puliyar peti and kundram kodi, there is padhara kudi one village there sandhoshi amman temple can do pooja, otherwise next to kumbhakonam thiladharbane kodi village there is adhivianyagar one temple can do pooja and put one vastram, otherwise should give achi velam dhanam or yerumbhu putruku dhanam or vianyaka perumalku achivelam padathil vaikinam, saturday and friday do it only for vinayaka perumal and tel om sumukhaya swaga for 101, but skipping is good.
+
+
+
+
