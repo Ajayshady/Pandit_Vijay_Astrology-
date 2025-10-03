@@ -109,11 +109,20 @@ Tithi Videos
 ------------
 * These thithi's will applicable who ever born in this tithi and also the current tithi's will also applicable. should not do any good things too. here one important is which graham will become shunyam that graham related works will affect it. 
 
-### Panchami(5) Tithi 
-* [Refer Here](https://www.youtube.com/watch?v=MKv5sSn7Rqc)
-* if we born on panchami thithi means It will affect mithanum(mercury/budhan) and kani(mercury/budhan) and should not be born on wednesday
-* for them wednesday is not good day and should not do any work on that day incase we have to do on that day any good work means we have to take 40 rs note book unruled and tare and then do ro go but 99% not to do, 
-* what is valibadu means panche nadishwarur in thiruvaiyar should not do on wednesday valibadu other day we can do, should not keep account in punjab national bank, karur vysya bank, 
+### Pradamai(1) Tithi
+* [Refer Here](https://www.youtube.com/watch?v=avWqr5w8M4g)
+* if we born in this tithi means makram(shani) and tula(venus/shukara) will come shunyam, so saturday and friday will affect them badly, should not do any good thing on this tithi on this day, should not do good things on this these days,
+* pariharam is if we want to do there is no option then achi velam dhanam should give or should put achivelam in sea and then do or should melt salt and then put this achi valeam in that and melt it 
+
+### Dvitiya(2) Tithi
+* [Refer Here](https://www.youtube.com/watch?v=XUnIEPb0yh8)
+* if we born on this tithi means dhansu(jupitor) and (meenam)(jupitor) will become shunyam, and thursday will become bad and should not do good things. should not take guru and brahamana curse or shabham, others days ok doing things but especially wednesday will be good day, 
+* should do guru namaskaram, or any madam should take blessing, or manjal kelangu braking is good, sundal dhanam should give, 
+
+### Tritiya(3) Tithi
+* [Refer Here](https://www.youtube.com/watch?v=bHlmm71o8Nk)
+* if we bron on this tithi means makram(shani) and simha(surya) will become shunyam, saturday and sunday will become bad day so should not do any good things on this days.
+* pariharam is should see the face and break the glass face mirror, if it is temple then tanjaor next to surekote ulur next bhaskara eshwaran valibadu. 
 
 ### Chaturthi(4) Tithi 
 * [Refer Here](https://www.youtube.com/watch?v=O6lrYnPpApk)
@@ -121,23 +130,11 @@ Tithi Videos
 * for them  saturday and friday should not born or should not do any good work, 
 * valibadu next to puliyar peti and kundram kodi, there is padhara kudi one village there sandhoshi amman temple can do pooja, otherwise next to kumbhakonam thiladharbane kodi village there is adhivianyagar one temple can do pooja and put one vastram, otherwise should give achi velam dhanam or yerumbhu putruku dhanam or vianyaka perumalku achivelam padathil vaikinam, saturday and friday do it only for vinayaka perumal and tel om sumukhaya swaga for 101, but skipping is good.
 
-
-### Pradamai(1) Tithi
-* [Refer Here](https://www.youtube.com/watch?v=avWqr5w8M4g)
-* if we born in this tithi means makram(shani) and tula(venus/shukara) will come shunyam, so saturday and friday will affect them badly, should not do any good thing on this tithi on this day, should not do good things on this these days,
-* pariharam is if we want to do there is no option then achi velam dhanam should give or should put achivelam in sea and then do or should melt salt and then put this achi valeam in that and melt it 
-
-### Tritiya(3) Tithi
-* [Refer Here](https://www.youtube.com/watch?v=bHlmm71o8Nk)
-* if we bron on this tithi means makram(shani) and simha(surya) will become shunyam, saturday and sunday will become bad day so should not do any good things on this days.
-* pariharam is should see the face and break the glass face mirror, if it is temple then tanjaor next to surekote ulur next bhakara eshwaran valibadu. 
-
-
-### Dvitiya(2) Tithi
-* [Refer Here](https://www.youtube.com/watch?v=XUnIEPb0yh8)
-* if we born on this tithi means dhansu(jupitor) and (meenam)(jupitor) will become shunyam, and thursday will become bad and should not do good things. should not take guru and brahamana curse or shabham, others days ok doing things but especially wednesday will be good day, 
-* should do guru namaskaram, or any madam should take blessing, or manjal kelangu braking is good, sundal dhanam should give, 
-
+### Panchami(5) Tithi 
+* [Refer Here](https://www.youtube.com/watch?v=MKv5sSn7Rqc)
+* if we born on panchami thithi means It will affect mithanum(mercury/budhan) and kani(mercury/budhan) and should not be born on wednesday
+* for them wednesday is not good day and should not do any work on that day incase we have to do on that day any good work means we have to take 40 rs note book unruled and tare and then do ro go but 99% not to do, 
+* what is valibadu means panche nadishwarur in thiruvaiyar should not do on wednesday valibadu other day we can do, should not keep account in punjab national bank, karur vysya bank, 
 
 ### Shashti(6) Tithi
 * [Refer Here](https://www.youtube.com/watch?v=c_cCy6kxh0s)
