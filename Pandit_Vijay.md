@@ -154,5 +154,5 @@ Tithi Videos
 ### To activate kubera in general by using rain and komeir 
 * [Refer Here](https://www.youtube.com/shorts/FSgshXqsum4) 
 
-### Drinks habitate solutions
+### Drinks habitate Explained solutions
 * [Refer Here](https://www.youtube.com/watch?v=qqBIE8owszg) 
