@@ -146,9 +146,8 @@ Tithi Videos
 * if we born on this tithi means dhansu(jupitor) and kadagam(chandra) will become shunyam, this thursday and monday will become bad days should not do any work on that day, 
 * valibadu chandra shekar eshwar or sapta rishwar lalgudi town or akshte should prepare and give for 4 people or 9 people or 7 people should dhanam if no one taken means then in temple keep near leg of sapta kani god. 
 
-### moon and saturn combination people how to activate kubera
-* [Refer Here](https://www.youtube.com/shorts/rS8LfyfX-1Y)
-* [Refer Here](https://www.youtube.com/shorts/qZJCX8KFmFs)
+### moon and saturn combination people how to activate kubera 
+* [Refer Here](https://www.youtube.com/watch?v=qoiuD-SCHjc)
 * these places we have to go on monday or saturday 
 
 ### To activate kubera in general by using rain and komeir 
