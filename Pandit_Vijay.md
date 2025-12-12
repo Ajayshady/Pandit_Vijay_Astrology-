@@ -155,3 +155,34 @@ Tithi Videos
 
 ### Drinks habitate Explained solutions
 * [Refer Here](https://www.youtube.com/watch?v=qqBIE8owszg) 
+
+### about vasthu direction four corners what should be there and what should not be there
+* [Refer Here](https://www.youtube.com/watch?v=ZfguE-yiEQY)
+* thain meruku should not be water tank under this 
+* thain keluku should not be there septic tank or rain save tank 
+* vadeku keluku means eshani mulai should be little palam/down, here also can keep kitchen
+* meruku vadeku means vayhu should keep kitchen, sould affect this molai, means they will take credit but will not return it, 
+
+### about the adi and other months details when to change house when not to chan house, specially adi month important and in adi maonth what pooja should we do
+* [Refer Here](https://www.youtube.com/watch?v=QhaDJ2t5tuw)
+
+### this is important about which nakshatram is kubera should tel pandi 
+* [Refer Here](https://www.youtube.com/watch?v=wWU48ICodsU)
+
+### about thiruchandru kovil should go or not and mokambikamma temple 
+* [Refer Here](https://www.youtube.com/watch?v=LQKDvd5v29U)
+* thirchanduru is visagam nakshtram
+* for ashwini nakshatram thiruchanduru is 16th nakshtram so should not go there
+* for thiruvonam nakshtram thiruchanduru is 22nd nakshatram is vynashi so should not go there, vynashi means sick.
+
+### Flower medicine for heart attack and lagnam
+* [Refer Here](https://www.youtube.com/watch?v=-rZCjOOpyqg)
+* tula lagna people if cannot take decision then there is flower medicine
+* vishabham lagna people always fight in house always fight then there is flower medicine 
+* heart attack people can buy this flower medicine and keep for emergency is - rescue remedy, if they take this rescue remedy flower medicine with half tumbler water with 5 drops then they will get confidence and till going to hospital they can bare it atleast for 1 hour.
+* even loading dose flower medicine for heart attack with half tumbler water 5 drops take can bare 3 hours till they go hospital 
+* midanam lagna can take helm and white chestnut flower medicine they will become more happy and good 
+
+
+### Thirupati
+* puram, sadayam, Thiruvathirai, Swathi should not go thirupathi. 
