@@ -166,8 +166,19 @@ Tithi Videos
 ### about the adi and other months details when to change house when not to chan house, specially adi month important and in adi maonth what pooja should we do
 * [Refer Here](https://www.youtube.com/watch?v=QhaDJ2t5tuw)
 
-### this is important about which nakshatram is kubera should tel pandi 
+### this is important about which nakshatram is kubera should to temple
 * [Refer Here](https://www.youtube.com/watch?v=wWU48ICodsU)
+* for Pooradam nakshatram kubera is covai thandu mariyamman 
+* for Krittika nakshatram kubera is thiruthani murugan 
+* for avitam nakshatram kubera is kerala mirdhangagai shaileshwari temple
+* for ashwini nakshatram kubera is kuthunur saraswathi kumbokonam 
+* bharani nakshatram kubera is melmalainur angala parameshwari 
+* Rohini nakshatram kubera is guruvairu kannan/krishnan
+* Mrigashirsha nakshatram kubera is kolumangudi guru 
+* Thiruvathirai nakshatram kubera is chidabaram natraj koil
+* poonarpoosam nakshatram kubera is thriuviligodi ramar 
+* poosam nakshatram kubera is vadalur vallar should eat annadhanam at kovil in abjith ankshatram
+
 
 ### about thiruchandru kovil should go or not and mokambikamma temple 
 * [Refer Here](https://www.youtube.com/watch?v=LQKDvd5v29U)
@@ -184,5 +195,12 @@ Tithi Videos
 * midanam lagna can take helm and white chestnut flower medicine they will become more happy and good 
 
 
-### Thirupati
-* puram, sadayam, Thiruvathirai, Swathi should not go thirupathi. 
+### Thirupati based nakshtram should go or not.? and also about nakshtra told 
+* [Refer Here](https://www.youtube.com/watch?v=2tz_EiDalKk)
+* Thirupathi malai is Uthirattadhi 
+* puram, sadayam,Rohini,Uthiradam,Sadayam,Anusham,Moolam,Thiruvathirai, Swathi should not go thirupathi. 
+* Ashwini nakshatram he told lots of this should watch. 
+* which nakshatram if they go thirupati is it good
+   * Poorattadhi,Avittam,Pooradam,Kettai, 
+* Palani temple who should not go 
+   * virushabham lagnam should not go to palani  
