@@ -204,3 +204,9 @@ Tithi Videos
    * Poorattadhi,Avittam,Pooradam,Kettai, 
 * Palani temple who should not go 
    * virushabham lagnam should not go to palani  
+
+### To vasikara our kuladevaim and eye drushti to get rid off
+* [Refer Here](https://www.youtube.com/watch?v=e_gAnVcu5-M)   
+
+### To stop thadegal and karya vetri siddhi pooja for shiva and ambal 
+* [Refer Here](https://www.youtube.com/watch?v=wX2EcX3Bi2A)
